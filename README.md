@@ -9,7 +9,7 @@ grime star, for a sec
 git king now  
 believe  
 
-went of the internet  
+went off the internet  
 like social networks  
 for a github repo  
 
