@@ -24,3 +24,22 @@ have thought...
 * [May 16, 2019]
 
 - - -
+
+## --depth--
+
+I dance 
+around the fire
+of greatness
+and youth 
+
+it’s shadow
+is immense 
+it’s loneliness 
+is couth
+
+alone I dance
+in wonder
+who would kiss 
+a dragon’s tooth
+
+* [May 17, 2019]
