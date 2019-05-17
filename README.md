@@ -1,9 +1,14 @@
+<!DOCTYPE html>
+<html lang="en">
 <head>
-  <meta name="description" 
-      content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
+
+<meta name="author" content="Ninte Dangana">
+<meta name="description" 
+  content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
+
 </head>
 
-- - -
+<body>
 
 ## --mic test--
 
@@ -117,3 +122,6 @@ like a sky, with no weather
 * [May 17, 2019]
 
 - - -
+
+</body>
+</html>
