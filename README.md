@@ -27,19 +27,19 @@ have thought...
 
 ## --depth--
 
-I dance 
-around the fire
-of greatness
-and youth 
+I dance  
+around the fire  
+of greatness  
+and youth  
 
-it’s shadow
-is immense 
-it’s loneliness 
-is couth
+it’s shadow  
+is immense  
+it’s loneliness  
+is couth  
 
-alone I dance
-in wonder
-who would kiss 
-a dragon’s tooth
+alone I dance  
+in wonder  
+who would kiss  
+a dragon’s tooth  
 
 * [May 17, 2019]
