@@ -93,7 +93,7 @@ how shall I expire
 ## --videogame--
 
 will you be first player  
-the slwyed, or slayer  
+the slayed, or slayer  
 on the battlefield  
 of love. I enquire  
 
