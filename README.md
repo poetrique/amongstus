@@ -118,7 +118,7 @@ like a sky, with no weather
 
 - - -
 
-## -my word is born--
+## --my word is born--
 
 I drink smoke  
 but never choke  
