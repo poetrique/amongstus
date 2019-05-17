@@ -79,7 +79,7 @@ ever yoken
 to her I am desire  
 pure, full of fire  
 liking she can  
-love though. Oh never  
+love though - Oh never  
 
 the first was vain  
 the current is clever  
