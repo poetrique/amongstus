@@ -117,3 +117,19 @@ like a sky, with no weather
 * [May 17, 2019]
 
 - - -
+
+## -my word is born--
+
+I drink smoke  
+but never choke  
+making money cold  
+never broke  
+
+I listen to  
+the prophecies  
+spoken, by unbelievers  
+they hold more truth  
+than most of these  
+modern deceivers
+
+* [May 18, 2019]  
