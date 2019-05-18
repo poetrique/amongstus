@@ -20,4 +20,14 @@ that, causes my soul
 to stand firm  
 you are my gravity
 
+on this day  
+of your birth's anniversary  
+if not, to feel anything  
+know that I, would do all  
+and more for you  
+break the sun  
+and tame the moon  
+... and all else you seek  
+just for you
+
 * _With <i class="em em-heartpulse"></i> from **OG**_
