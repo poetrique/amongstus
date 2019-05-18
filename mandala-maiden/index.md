@@ -1,3 +1,8 @@
+<head>
+  <!-- Emojis -->
+  <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
+</head>
+
 # Mandala Maiden
 
 your heart is a  
@@ -15,4 +20,4 @@ that, causes my soul
 to stand firm  
 you are my gravity
 
-
+* _With <i class="em em-heartpulse"></i> from **OG**_
