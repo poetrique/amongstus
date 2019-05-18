@@ -30,4 +30,4 @@ and tame the moon
 ... and all else you seek  
 just for you
 
-* _With <i class="em em-heartpulse"></i> from **OG**_
+* _With <i class="em em-gift_heart"></i> from **OG**_. Happy Birthday! 
