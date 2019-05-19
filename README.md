@@ -133,3 +133,26 @@ than most of these
 modern deceivers
 
 * [May 18, 2019]  
+
+- - -
+
+## --lover’s playground--
+
+underneath a full moon  
+three groups  
+six hearts  
+some full of gravity  
+two truly flown  
+one unknown  
+
+I would move the earth  
+but you would not  
+then it did seem  
+you feared to love  
+he whom love, knew not  
+
+he whom fate forgot  
+when she coupled stars  
+and bond oceans together  
+
+* [May 19, 2019]
