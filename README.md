@@ -161,15 +161,15 @@ and bond oceans together
 
 ## --burnday--
 
-haiku superior
-my flow is injurious 
-poetry, what I be
-my flow is
-far from superfluous
+haiku superior  
+my flow is injurious  
+poetry, what I be  
+my flow is  
+far from superfluous  
 
-I burn tobacco
-on a Sunday 
-on a Burnday
-cause that’s just my way
+I burn tobacco  
+on a Sunday  
+on a Burnday  
+cause that’s just my way  
 
 * [May 19, 2019]
