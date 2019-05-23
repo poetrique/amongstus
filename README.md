@@ -173,3 +173,20 @@ on a Burnday
 cause that’s just my way  
 
 * [May 19, 2019]
+
+- - -
+
+## —baptize—
+
+tobacco leaves  
+drowning in liquor  
+good men  
+can not know stupor  
+
+for to be foolish  
+is to be evil  
+is to be  
+other than good  
+in self-purity, relish  
+
+* [May 20, 2019]
