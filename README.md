@@ -4,6 +4,22 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --a dead vein--
+
+what brings no pain  
+what tastes the same  
+weakness, indeed  
+each single day  
+
+what can not play  
+what must one pay  
+power, indeed
+each, every way
+
+* [May 25, 2019]
+
+- - -
+
 ## —baptize—
 
 tobacco leaves  
