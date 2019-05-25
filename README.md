@@ -5,21 +5,6 @@
 </head>
 
 
-## --fascinate--
-
-to her I am desire  
-pure, full of fire  
-liking she can  
-love though - Oh never  
-
-the first was vain  
-the current is clever  
-her cloaks remain the same  
-how shall I expire  
-
-* [May 17, 2019]
-
-- - -
 
 ## --videogame--
 
@@ -130,6 +115,22 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --fascinate--
+
+to her I am desire  
+pure, full of fire  
+liking she can  
+love though - Oh never  
+
+the first was vain  
+the current is clever  
+her cloaks remain the same  
+how shall I expire  
+
+* [May 17, 2019]
+
+- - -
 
 ## --sweet desires--
 
