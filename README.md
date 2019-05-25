@@ -4,24 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-
-
-## --videogame--
-
-will you be first player  
-the slayed, or slayer  
-on the battlefield  
-of love. I enquire  
-
-laid to waste  
-have I been  
-I feel so much  
-but cannot scream  
-
-* [May 17, 2019]
-
-- - -
-
 ## --abracadabra--
 
 I am no cold soul  
@@ -115,6 +97,22 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --videogame--
+
+will you be first player  
+the slayed, or slayer  
+on the battlefield  
+of love. I enquire  
+
+laid to waste  
+have I been  
+I feel so much  
+but cannot scream  
+
+* [May 17, 2019]
+
+- - -
 
 ## --fascinate--
 
