@@ -4,22 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-## --abracadabra--
-
-I am no cold soul  
-no lifeless cadaver  
-why treat me so  
-like a worthless whomever  
-
-a poet filled with pain  
-an artist filled with shame  
-must I keep quiet  
-invisible...  
-like a sky, with no weather  
-
-* [May 17, 2019]
-
-- - -
 
 ## --my word is born--
 
@@ -97,6 +81,23 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --abracadabra--
+
+I am no cold soul  
+no lifeless cadaver  
+why treat me so  
+like a worthless whomever  
+
+a poet filled with pain  
+an artist filled with shame  
+must I keep quiet  
+invisible...  
+like a sky, with no weather  
+
+* [May 17, 2019]
+
+- - -
 
 ## --videogame--
 
