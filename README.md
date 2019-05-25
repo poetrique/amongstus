@@ -4,29 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-## --lover’s playground--
-
-underneath a full moon  
-three groups  
-six hearts  
-some full of gravity  
-two truly flown  
-one unknown  
-
-I would move the earth  
-but you would not  
-then it did seem  
-you feared to love  
-he whom love, knew not  
-
-he whom fate forgot  
-when she coupled stars  
-and bond oceans together  
-
-* [May 18, 2019]
-
-- - -
-
 ## --burnday--
 
 haiku superior  
@@ -62,6 +39,29 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --lover’s playground--
+
+underneath a full moon  
+three groups  
+six hearts  
+some full of gravity  
+two truly flown  
+one unknown  
+
+I would move the earth  
+but you would not  
+then it did seem  
+you feared to love  
+he whom love, knew not  
+
+he whom fate forgot  
+when she coupled stars  
+and bond oceans together  
+
+* [May 18, 2019]
+
+- - -
 
 ## --my word is born--
 
