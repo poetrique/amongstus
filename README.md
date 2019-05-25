@@ -4,26 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-## --depth--
-
-I dance  
-around the fire  
-of greatness  
-and youth  
-
-it’s shadow  
-is immense  
-it’s loneliness  
-is couth  
-
-alone I dance  
-in wonder  
-who would kiss  
-a dragon’s tooth  
-
-* [May 17, 2019]
-
-- - -
 
 ## --sweet desires--
 
@@ -167,6 +147,24 @@ in self-purity, relish
 * * *
 * * *
 
+## --depth--
+
+I dance  
+around the fire  
+of greatness  
+and youth  
+
+it’s shadow  
+is immense  
+it’s loneliness  
+is couth  
+
+alone I dance  
+in wonder  
+who would kiss  
+a dragon’s tooth  
+
+* [May 17, 2019]
 
 - - -
 
