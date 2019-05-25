@@ -4,6 +4,23 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## —baptize—
+
+tobacco leaves  
+drowning in liquor  
+good men  
+can not know stupor  
+
+for to be foolish  
+is to be evil  
+is to be  
+other than good  
+in self-purity, relish  
+
+* [May 20, 2019]
+
+- - -
+
 ## --burnday--
 
 haiku superior  
@@ -20,25 +37,6 @@ cause that’s just my way
 * [May 19, 2019]
 
 - - -
-
-## —baptize—
-
-tobacco leaves  
-drowning in liquor  
-good men  
-can not know stupor  
-
-for to be foolish  
-is to be evil  
-is to be  
-other than good  
-in self-purity, relish  
-
-* [May 20, 2019]
-
-* * *
-* * *
-* * *
 
 ## --lover’s playground--
 
