@@ -4,25 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-
-## --my word is born--
-
-I drink smoke  
-but never choke  
-making money cold  
-never broke  
-
-I listen to  
-the prophecies  
-spoken, by unbelievers  
-they hold more truth  
-than most of these  
-modern deceivers
-
-* [May 18, 2019]  
-
-- - -
-
 ## --lover’s playground--
 
 underneath a full moon  
@@ -81,6 +62,24 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --my word is born--
+
+I drink smoke  
+but never choke  
+making money cold  
+never broke  
+
+I listen to  
+the prophecies  
+spoken, by unbelievers  
+they hold more truth  
+than most of these  
+modern deceivers
+
+* [May 18, 2019]  
+
+- - -
 
 ## --abracadabra--
 
