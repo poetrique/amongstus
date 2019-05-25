@@ -5,22 +5,6 @@
 </head>
 
 
-## --sweet desires--
-
-you taste like  
-cinnamon  
-pain, you tireless  
-lover. Only you remain  
-
-all I wanted was to help  
-why must I be broken  
-to you bound  
-ever yoken
-
-* [May 17, 2019]
-
-- - -
-
 ## --fascinate--
 
 to her I am desire  
@@ -146,6 +130,22 @@ in self-purity, relish
 * * *
 * * *
 * * *
+
+## --sweet desires--
+
+you taste like  
+cinnamon  
+pain, you tireless  
+lover. Only you remain  
+
+all I wanted was to help  
+why must I be broken  
+to you bound  
+ever yoken
+
+* [May 17, 2019]
+
+- - -
 
 ## --depth--
 
