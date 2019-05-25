@@ -4,34 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-
-## --mic test--
-
-one, two, three  
-who is sicker  
-than the rapper  
-who I be  
-
-grime star, for a sec  
-git king now  
-believe  
-
-went off the internet  
-like social networks  
-for a github repo  
-
-its all kinda funny  
-cause now I code  
-for money, bliss  
-and poetry  
-
-who would  
-have thought...  
-
-* [May 16, 2019]
-
-- - -
-
 ## --depth--
 
 I dance  
@@ -190,3 +162,35 @@ other than good
 in self-purity, relish  
 
 * [May 20, 2019]
+
+* * *
+* * *
+* * *
+
+
+- - -
+
+## --mic test--
+
+one, two, three  
+who is sicker  
+than the rapper  
+who I be  
+
+grime star, for a sec  
+git king now  
+believe  
+
+went off the internet  
+like social networks  
+for a github repo  
+
+its all kinda funny  
+cause now I code  
+for money, bliss  
+and poetry  
+
+who would  
+have thought...  
+
+* [May 16, 2019]
