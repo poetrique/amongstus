@@ -13,7 +13,7 @@ each single day
 
 what can not play  
 what must one pay  
-power, indeed
+power, indeed  
 each, every way
 
 * [May 25, 2019]
