@@ -4,6 +4,28 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --blink--
+
+I am the solemn truth  
+bitter strength,  
+marked by dark desire  
+
+blunt to the root  
+for no one cares  
+to kiss my fire  
+
+strange I am called  
+all claim to know  
+the path I walk  
+
+I am a broken truth  
+a drunked preacher  
+a sinful choir  
+
+* [May 27, 2019]
+
+- - -
+
 ## --a dead vein--
 
 what brings no pain  
