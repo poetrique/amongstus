@@ -4,6 +4,22 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+- - -
+
+## --flaky whispers—-
+
+a cig a day  
+keeps  
+addiction away  
+
+maybe six  
+maybe less  
+never more  
+
+* [May 27, 2019]
+
+- - -
+
 ## --blink--
 
 I am the solemn truth  
