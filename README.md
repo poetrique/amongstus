@@ -4,6 +4,26 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## -—testament—-
+
+there is no messiah  
+for a preacher  
+with no choir  
+
+there is no salvation  
+for a people  
+with no nation  
+
+black, was just a colour  
+till our crimson  
+blood did pour  
+
+I am no messiah  
+I write hymns  
+with no choir  
+
+* [May 28, 2019]
+
 - - -
 
 ## --flaky whispers—-
