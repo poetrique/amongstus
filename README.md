@@ -4,7 +4,7 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
-## -—testament—-
+## --testament--
 
 there is no messiah  
 for a preacher  
@@ -26,7 +26,7 @@ with no choir
 
 - - -
 
-## --flaky whispers—-
+## --flaky whispers--
 
 a cig a day  
 keeps  
