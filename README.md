@@ -10,7 +10,7 @@ nobody will hold
 your darkened hand  
 up, out of the cold  
 
-incase you have not heard  
+in case you have not heard  
 this story has been told  
 
 we are the children of Ham  
