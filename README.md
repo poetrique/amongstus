@@ -4,6 +4,25 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --spit it out--
+
+nobody will hold  
+your darkened hand  
+up, out of the cold  
+
+incase you have not heard  
+this story has been told  
+
+we are the children of Ham  
+born of the dust. So damn!
+
+there is pity for us
+they have to earn our trust
+
+* [May 30, 2019]
+
+- - -
+
 ## --testament--
 
 there is no messiah  
