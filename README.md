@@ -8,6 +8,7 @@
 - - -
 - - -
 
+<!-- 
 ## --sudo--
 
 sudo! the power of words  
@@ -16,7 +17,8 @@ you know
 we one and the same  
 all of the youth  
 
-* [June 1, 2019]
+* [June 1, 2019] 
+-->
 
 - - - 
 
