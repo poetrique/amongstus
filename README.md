@@ -13,7 +13,6 @@
     title="SUDO by Amongstus: A Poetry Track" 
     width="70%" height="auto"/>  
 <a href="./music/sudo_acapella_version.mp3" download="Amongstus_SUDO"><b>Download >> SUDO by Amongstus [Mp3]</b></a>
-<h6>A Poetry Track</h6>
 
 - - - 
 
