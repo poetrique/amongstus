@@ -4,9 +4,6 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
-- - -
-- - -
-
 <!-- <img src="./music/SUDO_Track.png" 
     alt="SUDO by Amongstus [Track Cover]" 
     title="SUDO by Amongstus: A Poetry Track" 
