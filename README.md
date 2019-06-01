@@ -4,6 +4,29 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --not your son--
+
+send me to die  
+and I will rise  
+an angel  
+out of the dust  
+
+look, I dont like  
+my word is double-edged  
+and has never known rust  
+
+you think you can  
+bully me, into the weak  
+man you want  
+
+I aint your son  
+my word is born  
+its heat does rival the sun  
+
+* [June 1, 2019]
+
+- - -
+
 ## --home of the weak--
 
 what does the fate  
