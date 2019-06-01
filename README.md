@@ -4,6 +4,28 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --home of the weak--
+
+what does the fate  
+of young men, dead  
+taste like  
+
+I say disgrace  
+cause, black aint  
+meant to die  
+
+I say you know  
+what your sin  
+looks like  
+
+god help my soul  
+if, for my people  
+I wont fight
+
+* [June 1, 2019]
+
+- - -
+
 ## --spit it out--
 
 nobody will hold  
