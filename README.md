@@ -4,6 +4,18 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --sudo--
+
+sudo! the power of words  
+power of truth  
+you know  
+we one and the same  
+all of the youth  
+
+* [June 1, 2019]
+
+- - - 
+
 ## --merry--
 
 land of the free  
