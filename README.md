@@ -4,6 +4,22 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+## --merry--
+
+land of the free  
+that once held slaves  
+home of the brave  
+yet full of knaves  
+
+who would have thought  
+you would fall so low  
+you fought for liberty  
+and sold your soul
+
+* [June 1, 2019]
+
+- - -
+
 ## --not your son--
 
 send me to die  
