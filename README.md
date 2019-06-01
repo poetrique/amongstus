@@ -1,7 +1,7 @@
 <head>
   <meta name="author" content="Ninte Dangana">
   <meta name="description" 
-      content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
+      content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
 # [Click to read Volume 1](./volume-1/)
