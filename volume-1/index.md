@@ -4,6 +4,11 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The writings of Amongstus, presented by Poetrique">
 </head>
 
+# [Homepage](../README.md)
+
+- - -
+- - -
+
 ## --sudo--
 
 sudo! the power of words  
