@@ -93,7 +93,7 @@ this story has been told
 we are the children of Ham  
 born of the dust. So damn!
 
-there is pity for us  
+there is no pity for us  
 they have to earn our trust
 
 * [May 30, 2019]
