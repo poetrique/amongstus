@@ -4,6 +4,25 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
+## --reflection--
+
+I make art  
+do you even care  
+
+I work like gods  
+would do  
+
+do you taste the air  
+
+I carve for you  
+from hills of hue  
+
+all for a reflection  
+of your soul,  
+that's past due  
+
+* [June 1, 2019]
+
 - - - 
 
 ## --sudo--
