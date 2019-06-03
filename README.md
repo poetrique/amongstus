@@ -4,6 +4,20 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
+## --full plate--
+
+lie to yourself  
+feed on your soul  
+
+there will always  
+be one spoon of truth  
+even after  
+the last bite  
+
+* [June 2, 2019]
+
+- - -
+
 ## --reflection--
 
 I make art  
