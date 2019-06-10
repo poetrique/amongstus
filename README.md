@@ -26,7 +26,7 @@ of the same, of the same
 old glory  
 
 in the end  
-the world, will
+the world, will  
 watch my holy story  
 
 * [June 10, 2019]
