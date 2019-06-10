@@ -4,6 +4,35 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
+## --who be me--
+
+me, be a lonely king  
+I've got the gold  
+in bulk  
+
+and more is on the way  
+I look to the day  
+I have me children  
+with souls as warm  
+as the desert snow  
+
+I used to be a writer  
+I used to be a fighter  
+I used to be like water  
+always, steady on the flow  
+
+now I work for more  
+of the same, of the same  
+old glory  
+
+in the end  
+the world, will
+watch my holy story  
+
+* [June 10, 2019]
+
+- - -
+
 ## --full plate--
 
 lie to yourself  
