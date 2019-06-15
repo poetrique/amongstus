@@ -4,6 +4,11 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
+
+- - -
+- - -
+
 ## --who be me--
 
 me, be a lonely king  
@@ -79,6 +84,10 @@ all of the youth
 * [June 1, 2019]
 
 - - - 
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
+
+- - -
 
 ## --merry--
 
@@ -158,6 +167,10 @@ they have to earn our trust
 
 * [May 30, 2019]
 
+- - - 
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
+
 - - -
 
 ## --testament--
@@ -231,6 +244,10 @@ power, indeed
 each, every way
 
 * [May 25, 2019]
+
+- - - 
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
 
 - - -
 
@@ -307,6 +324,10 @@ modern deceivers
 
 * [May 18, 2019]  
 
+- - - 
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
+
 - - -
 
 ## --abracadabra--
@@ -371,6 +392,10 @@ to you bound
 ever yoken
 
 * [May 17, 2019]
+
+- - - 
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)
 
 - - -
 
