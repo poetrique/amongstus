@@ -23,4 +23,4 @@ the rewards, endless
 to make your pay  
 you fight relentless
 
-[* June 20, 2019]  
+* [June 20, 2019]  
