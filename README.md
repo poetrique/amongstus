@@ -29,7 +29,7 @@ you fight relentless
 
 ## Mad Digital
 
-> Stanza 1
+> Verse 1
 
 i write code  
 and speak to gods  
