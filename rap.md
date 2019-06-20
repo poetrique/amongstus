@@ -1,0 +1,74 @@
+<head>
+  <meta name="author" content="Ninte Dangana">
+  <meta name="description" 
+      content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
+</head>
+
+[Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)  
+
+[Go to Homepage](./README.md)
+
+[READ Volume 1](./archive/volume1.md)  
+
+- - -
+- - -
+
+## Mad Digital
+
+> Verse 1
+
+i write code  
+and speak to gods  
+i move with mad dogs  
+and give out hugs  
+but its all not still enough  
+yes we build  
+on mountains rough  
+but where is all the gain  
+
+all i see is pain  
+all i see is numb  
+each day is all the same  
+the hunger for a name  
+the hunger for the fame  
+what does it all matter  
+we will still  
+hit the dust  
+either way  
+one day
+
+> Hook
+
+we all worship  
+a digital god  
+every sinner in the temple  
+one and the same  
+
+it dont matter your name  
+it dont matter your game  
+we all offer data  
+on the altar of the internet
+
+> Verse 2
+
+what it all mean  
+its like we are in a movie  
+and its all too good  
+to be truly true  
+
+its like we are in a zoo  
+and the keeper is a warden  
+god, is this true of you too  
+
+its probably not that deep  
+probably much more steep  
+this could be a videogame  
+one we cannot win  
+
+no role models  
+and we got this far  
+and we built this star  
+we are the final contellation  
+in a sky with a scar  
+
+* [June 20, 2019]
