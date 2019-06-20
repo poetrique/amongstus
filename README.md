@@ -63,3 +63,24 @@ it dont matter your game
 we all offer data  
 on the altar of the internet
 
+> Verse 2
+
+what it all mean  
+its like we are in a movie  
+and its all too good  
+to be truly true  
+
+its like we are in a zoo  
+and the keeper is a warden  
+god, is this true of you too  
+
+its probably not that deep  
+probably much more steep  
+this could be a videogame  
+one we cannot win  
+
+no role models  
+and we got this far  
+and we built this star  
+we are the final contellation  
+in a sky with a scar  
