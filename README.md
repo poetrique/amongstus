@@ -50,3 +50,16 @@ we will still
 hit the dust  
 either way  
 one day
+
+> Hook
+
+we all worship  
+a digital god  
+every sinner in the temple  
+one and the same  
+
+it dont matter your name  
+it dont matter your game  
+we all offer data  
+on the altar of the internet
+
