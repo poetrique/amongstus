@@ -87,3 +87,25 @@ and we got this far
 and we built this star  
 we are the final contellation  
 in a sky with a scar  
+
+- - -
+
+## whisper good tidings
+
+pick your words  
+do your part  
+you know your role  
+you have from the start  
+
+be a cold soul  
+do it all, and  
+let the pain go  
+be the cold bow  
+from which the seed  
+that is the truth  
+as an arrow  
+in the air  
+lets its wings show  
+
+* [June 22, 2019]
+
