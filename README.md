@@ -4,15 +4,10 @@
       content="A delectable presentation of thought, meandering dreams, and surreal imagination. The artistry of Amongstus, presented by Poetrique">
 </head>
 
-<<<<<<< HEAD
 [Follow @POETRIQUE on Instagram](https://instagram.com/poetrique)  
 
 <!-- [READ Volume 1](./archive/volume1.md)   -->
 <!-- [READ Rap Lyrics](./rap.md)   -->
-=======
-[READ Volume 1](./archive/volume1.md)  
-[READ Rap Lyrics](./rap.md)  
->>>>>>> 21d5da9ec79ee0d84c9e071a149a20908cfc5cfc
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/639471336&color=%23ff5500&auto_play=true&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
 
@@ -553,8 +548,4 @@ and poetry
 who would  
 have thought...  
 
-<<<<<<< HEAD
 * [May 16, 2019]
-=======
-F
->>>>>>> 21d5da9ec79ee0d84c9e071a149a20908cfc5cfc
